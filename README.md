@@ -1,0 +1,1 @@
+# yjka-trend.github.io
